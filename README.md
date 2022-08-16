@@ -1,2 +1,1 @@
-# Abdullah-TUTAL
-Sevdiğim Diziler
+
